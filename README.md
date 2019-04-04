@@ -1,1 +1,1 @@
-# 404
+# Creative 404 pages ideas
